@@ -1,0 +1,335 @@
+---
+url: "https://ucmjmilitarylaw.com/military-bases/"
+title: "Worldwide Military Bases List"
+---
+
+[Skip to content](https://ucmjmilitarylaw.com/military-bases/#content)
+
+# Comprehensive List of U.S. and Worldwide Military Bases
+
+### U.S. and Worldwide Military Bases by Country  United States
+
+- Alabama
+- Alaska
+- Arizona
+- Arkansas
+- [California](https://ucmjmilitarylaw.com/military-bases/california-military-law/)
+- Colorado
+- Connecticut
+- Delaware
+- [Florida](https://ucmjmilitarylaw.com/military-bases/florida-military-law/)
+- [Georgia](https://ucmjmilitarylaw.com/military-bases/georgia-military-law/)
+- Hawaii
+- Idaho
+- Illinois
+- Indiana
+- Iowa
+- Kansas
+- Kentucky
+- Louisiana
+- Maine
+- Maryland
+- Massachusetts
+- Michigan
+- Minnesota
+- Mississippi
+- Missouri
+- Montana
+- Nebraska
+- Nevada
+- New Hampshire
+- New Jersey
+- New Mexico
+- New York
+- North Carolina
+- North Dakota
+- Ohio
+- Oklahoma
+- Oregon
+- Pennsylvania
+- Rhode Island
+- South Carolina
+- South Dakota
+- Tennessee
+- [Texas](https://ucmjmilitarylaw.com/military-bases/texas-military-law/)
+- Utah
+- Vermont
+- Virginia
+- Washington
+- West Virginia
+- Wisconsin
+- Wyoming
+
+- Puerto Rico
+- Guam
+- U.S. Virgin Islands
+- American Samoa
+- Northern Mariana Islands
+- District of Columbia
+
+- Germany
+- England
+- Italy
+- Spain
+- Sicily
+- Europe
+- Turkey
+- Bahrain
+- Kuwait
+- Cyprus
+- Korea
+- Japan
+- Poland
+
+## U.S. and Worldwide Military Bases by Base Name
+
+- [Aberdeen Proving Ground](https://ucmjmilitarylaw.com/military-bases/aberdeen-proving-ground/)
+- Ali Al Salem Air Base, Kuwait
+- [Altus Air Force Base, Oklahoma](https://ucmjmilitarylaw.com/military-bases/altus-air-force-base/)
+- [Andrews AFB, Maryland](https://ucmjmilitarylaw.com/military-bases/andrews-afb-maryland/)
+- Anniston Army Depot, Alabama
+- Arnold AFB, Tennessee
+- Aviano Air Base, Italy
+- Bangor Annex, Washington
+- Barksdale Air Force Base, Louisiana
+- Beale Air Force Base, California
+- Bolling AFB/AF Pentagon, Washington, D.C.
+- Brooke Army Medical Center, Texas
+- CFA Okinawa, Japan
+- CFA Sasebo, Japan
+- CFA Yokosuka, Japan
+- Camp Casey, Korea
+- Camp Darby, Italy
+- Camp Humphreys, Korea
+- Camp Lemonnier, Djibouti
+- Camp Red Cloud, Korea
+- Camp Santiago, Puerto Rico
+- Cannon Air Force Base, New Mexico
+- Carlisle Barracks, Pennsylvania
+- Caserma Ederle, Italy
+- Chievres Air Base, Belgium
+- Columbus Air Force Base, Mississippi
+- Corry Station NTTC, Florida
+- Davis-Monthan Air Force Base, Arizona
+- Diego Garcia, British Indian Ocean Territory
+- Doha IAP, Qatar
+- Dover Air Force Base, Delaware
+- Dyess Air Force Base, Texas
+- Edwards Air Force Base, California
+- Eglin Air Force Base, Florida
+- Ellsworth Air Force Base, South Dakota
+- Fairchild Air Force Base, Washington
+- Fort A.P. Hill, Virginia
+- Fort Belvoir, Virginia
+- Fort Benning, Georgia
+- Fort Bliss, Texas
+- Fort Bragg, North Carolina
+- Fort Buchanan, Puerto Rico
+- Fort Campbell, Kentucky
+- Fort Carson, Colorado
+- Fort Detrick, Maryland
+- Fort Dix, New Jersey
+- Fort Drum, New York
+- Fort Eustis, Virginia
+- Fort Gordon, Georgia
+- Fort Greely, Alaska
+- Fort Hamilton, New York
+- Fort Hood, Texas
+- Fort Huachuca, Arizona
+- Fort Irwin, California
+- Fort Jackson, South Carolina
+- Fort Knox, Kentucky
+- Fort Leavenworth, Kansas
+- Fort Leonard Wood, Missouri
+- Fort McNair, Washington, D.C.
+- Fort Myer, Virginia
+- Fort Pickett, Virginia
+- Fort Polk, Louisiana
+- Fort Riley, Kansas
+- Fort Rucker, Alabama
+- Fort Sam Houston, Texas
+- Fort Shafter, Hawaii
+- Fort Sill, Oklahoma
+- Fujairah IAP, UAE
+- Ghedi Air Base, Italy
+- Goodfellow AFB, Texas
+- Grand Forks Air Force Base, North Dakota
+- Granicignano Support Site, Italy
+- Hanscom AFB, Massachusetts
+- Hickam AFB, Hawaii
+- Hill Air Force Base, Utah
+- Holloman Air Force Base, New Mexico
+- Hunter Army Airfield, Georgia
+- Huntsville Military Depot, Alabama
+- Hurlburt Air Force Base, Florida
+- Incirlik Air Base, Turkey
+- Indian Head NSWC, Maryland
+- Izmir Air Station, Turkey
+- Jebel Ali Port Facility, UAE
+- Joint Base Elmendorf-Richardson, Alaska
+- Kadena Air Base, Japan
+- Keesler AFB, Mississippi
+- King Abdul Aziz IAP, Saudi Arabia
+- King Fahd NB, Saudi Arabia
+- Kirtland AFB, New Mexico
+- Kleine Brogel Air Base, Belgium
+- Kunsan Air Base, Korea
+- Lackland AFB, Texas
+- Lajes Field, Azores, Portugal
+- Landstuhl Regional Medical Center, Germany
+- Langley AFB, Virginia
+- Laughlin AFB, Texas
+- Los Angeles Air Force Base, California
+- METC Fort Sam Houston, Texas
+- MacDill Air Force Base, Florida
+- Maxwell Air Force Base, Alabama
+- McChord AFB, Washington
+- McConnell Air Force Base, Kansas
+- McGuire AFB, New Jersey
+- Menwith Hill, UK
+- Minot Air Force Base, North Dakota
+- Misawa Air Base, Japan
+- Morón Air Base, Spain
+- Mountain Home AFB, Idaho
+- NAF Atsugi, Japan
+- NAF El Centro, California
+- NAF Misawa, Japan
+- NAS Corpus Christi, Texas
+- NAS Fallon, Nevada
+- NAS Jacksonville, Florida
+- NAS Key West, Florida
+- NAS Kingsville, Texas
+- NAS Lemoore, California
+- NAS Meridian, Mississippi
+- NAS Oceana, Virginia
+- NAS Pensacola, Florida
+- NAS Point Mugu, California
+- NAS Whidbey Island, Washington
+- NASJRB Fort Worth, Texas
+- NASJRB New Orleans, Louisiana
+- NB Coronado, California
+- NB Guam
+- NB Kitsap, Washington
+- NB Pearl Harbor, Hawaii
+- NB Point Loma, California
+- NB San Diego, California
+- NB Ventura County, California
+- NCBC Port Hueneme, California
+- NOLF San Nicolas Island, California
+- NS Everett, Washington
+- NS Great Lakes, Illinois
+- NS Newport, Rhode Island
+- NS Norfolk, Virginia
+- NSA Bahrain
+- NSA Capodichino, Italy
+- NSA Mid-South, Tennessee
+- NSA Orlando, Florida
+- NSA Panama City, Florida
+- NSB Kings Bay, Georgia
+- NSB New London, Connecticut
+- NSF Diego Garcia
+- NSF Kamiseya, Japan
+- NSGA Chesapeake, Virginia
+- NSGA Kunia, Hawaii
+- NSWC Carderock Division, Maryland
+- NSWC Corona, California
+- NSWC Dahlgren Division, Virginia
+- NWS Earle, New Jersey
+- NWS Seal Beach, California
+- NWS Yorktown, Virginia
+- National Naval Medical Center, Maryland
+- Naval Air Engineering Station Lakehurst, New Jersey
+- Naval Computer and Telecommunications Area Master Station Pacific, Hawaii
+- Naval Computer and Telecommunications Station Yokosuka, Japan
+- Naval Construction Battalion Center Gulfport, Mississippi
+- Naval Medical Center Portsmouth, Virginia
+- Naval Medical Center San Diego, California
+- Naval Shipyard Philadelphia, Pennsylvania
+- Naval Support Activity Charleston, South Carolina
+- Naval Support Activity Mechanicsburg, Pennsylvania
+- Naval Support Activity Monterey, California
+- Naval Support Activity Naples, Italy
+- Naval Support Activity New Orleans, Louisiana
+- Naval Support Facility Anacosta, Washington, D.C.
+- Naval Support Facility Thurmont, Maryland
+- Naval Support Office Hong Kong
+- Navy Annex Arlington, Virginia
+- Navy Information Operations Command Maryland
+- Navy Information Operations Command Sugar Grove, West Virginia
+- Navy and Marine Corps Intel Training Center, Virginia
+- Nellis AFB, Nevada
+- Norfolk Naval Shipyard, Virginia
+- Offutt Air Force Base, Nebraska
+- Osan Air Base, Korea
+- Patrick Air Force Base, Florida
+- Philadelphia Naval Shipyard, Pennsylvania
+- Pope Air Force Base, North Carolina
+- Portsmouth NSY, Maine
+- Presidio of Monterey, California
+- Puget Sound NSY, Washington
+- RAF Alconbury, UK
+- RAF Croughton, UK
+- RAF Fairford, UK
+- RAF Feltwell, UK
+- RAF Fylingdales, UK
+- RAF Lakenheath, UK
+- RAF Mildenhall, UK
+- RAF Molesworth, UK
+- RAF Welford, UK
+- Ramstein Air Base, Germany
+- Randolph AFB, Texas
+- Redstone Arsenal, Alabama
+- Roosevelt Roads Army Reserve Base, Puerto Rico
+- San Juan Army National Guard Support Station, Puerto Rico
+- Schofield Barracks, Hawaii
+- Scott Air Force Base, Illinois
+- Sembawang Naval Base, Singapore
+- Seymour Johnson Air Force Base, North Carolina
+- Shaw Air Force Base, South Carolina
+- Sheik Isa Air Base, Bahrain
+- Spangdahlem Air Base, Germany
+- Stavanger Air Station, Norway
+- Tinker Air Force Base, Oklahoma
+- Training Support Center Hampton Roads, Virginia
+- Travis Air Force Base, California
+- Tripler Army Medical Center, Hawaii
+- Tyndall AFB, Florida
+- USAG Ansbach, Germany
+- USAG Baumholder, Germany
+- USAG Garmisch, Germany
+- USAG Grafenwoehr, Germany
+- USAG Hohenfels, Germany
+- USAG Japan – Camp Zama
+- USAG Kaiserslautern, Germany
+- USAG Stuttgart, Germany
+- USAG Torii Station – Okinawa, Japan
+- USAG Vicenza, Italy
+- USAG Vilseck, Germany
+- USAG Wiesbaden, Germany
+- USAG Yongsan, Korea
+- USNH Beaufort, South Carolina
+- Vance AFB, Oklahoma
+- Vandenberg AFB, California
+- Volkel Air Base, Netherlands
+- Wallops Island ASCS, Virginia
+- Washington Navy Yard, Washington, D.C.
+- West Point, New York
+- White Sands Missile Range, New Mexico
+- Whiteman AFB, Missouri
+- Wright-Patterson AFB, Ohio
+- Yokota Air Base, Japan
+- Yongsan, Korea (Seoul)
+
+### Related Posts
+
+- [Top Reasons Why Hiring Military Lawyers is Essential for Service Members](https://ucmjmilitarylaw.com/military-lawyers/)
+- [Top Reasons to Hire a Military Attorney: Protect Your Rights and Benefits](https://ucmjmilitarylaw.com/military-attorney/)
+- [Understanding Military Criminal Investigative Agencies: CID, NCIS, OSI, and CGIS](https://ucmjmilitarylaw.com/investigations/understanding-military-criminal-investigative-agencies-cid-ncis-osi-and-cgis/)
+- [UCMJ Explained: Military Justice Overview](https://ucmjmilitarylaw.com/ucmj/)
+
+- [Empower Your Fight: How Military Sexual Assault Attorneys Can Make a Difference](https://ucmjmilitarylaw.com/military-sexual-assault-attorneys/)
+- [How to Survive a Separation Board](https://ucmjmilitarylaw.com/boards/separation-board-survival/)
+- [Understanding Article 129 UCMJ: Your Guide to Unlawful Entry Offenses in the Military](https://ucmjmilitarylaw.com/article-129-ucmj-unlawful-entry/)
+- [Choosing the Right UCMJ Sex Assault Lawyer: Essential Tips for Military Personnel](https://ucmjmilitarylaw.com/ucmj-sex-assault-lawyer/)
+
+Notifications
